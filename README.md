@@ -1,1 +1,1 @@
-# yaptiklarim
+# SİMPLE STUDİES
